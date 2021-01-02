@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Just the beginning
 
-I'm glad you are here. I plan to talk about ...
+Helloooooo crazy folks!
